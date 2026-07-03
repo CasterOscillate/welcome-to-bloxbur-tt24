@@ -1,4 +1,4 @@
-
+welcome to bloxburg smart Script is the best welcome to bloxburg Script, featuring god mode and auto-upgrade. Safe and powerful for all your needs.
 
 
 
